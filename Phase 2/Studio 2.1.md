@@ -1,1 +1,2 @@
-
+2.1 A Create a drawing that uses graphite to emphasize the values, lines, and tonal transitions of a horse standing in a field with the wind blowing slightly. The graphite should demonstrate the unity between the horse and its surroundings through its precise shadows.
+2.1 B Create an engraving that uses graphite to emphasize the values, lines, and tonal transitions of a horse standing in a field with the wind blowing slightly. The engraving should emphasize the difference between the horse and the sky with strong contrast between the black and white, while the horse seems almost one with the field.
